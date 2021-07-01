@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jaygautammm
+- 👀 I’m interested in game development.
+- 🌱 I’m currently learning Character Creation
+- 💞️ I’m looking to collaborate on small game projects.
+- 📫 You can message me on Instagram @jay._.gautam
